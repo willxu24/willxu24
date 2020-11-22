@@ -1,4 +1,4 @@
-## :grin:Hear is 超平和バスターズ
+## Hear is 超平和バスターズ
 
 An ordinary college student.
 
